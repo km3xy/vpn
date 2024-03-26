@@ -54,6 +54,11 @@ gpt  网页访问
 https://chat.openai.com/
 
 
+快连vpn
+
+https://www.voainit.com/lets-connect-fast-ai.html?jd=u3iQ68P7&gclid=EAIaIQobChMIvMqP466PhQMV4lDCBR1lhgxXEAEYASAAEgIdZfD_BwE&lp_from=share
+
+
 
 
 
