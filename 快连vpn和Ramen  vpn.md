@@ -39,3 +39,21 @@ https://c.p2hp.com/pichidden/
 https://main.ramenshare.top/
 
 高手教程 http://study.p2hp.com/
+
+
+
+
+
+https://www.voainit.com/lets-connect-fast-ai.html?jd=u3iQ68P7&gclid=EAIaIQobChMIvMqP466PhQMV4lDCBR1lhgxXEAEYASAAEgIdZfD_BwE
+
+
+
+
+
+
+gpt  网页访问
+
+https://chat.openai.com/
+
+
+
