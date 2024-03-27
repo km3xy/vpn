@@ -62,6 +62,33 @@ https://www.voainit.com/lets-connect-fast-ai.html?jd=u3iQ68P7&gclid=EAIaIQobChMI
 
 
 
+https://www.voainit.com/lets-connect-fast-ai.html?jd=u3iQ68P7&gclid=EAIaIQobChMIvMqP466PhQMV4lDCBR1lhgxXEAEYASAAEgIdZfD_BwE&lp_from=share
+
+谷歌商店下载chatgpt 有地区限制
+
+https://play.google.com/store/apps/details?id=com.openai.chatgpt
+
+geniechat
+
+有地区限制
+
+https://play.google.com/store/apps/details?id=com.openai.chatgpt
+
+geniechat
+
+快连vpn 铂金会员切换地区试试 不一定行 可以试试
+
+Ramen vpn 切换线路 地区 试试 不一定行 可以试试
+
+
+选择美国线路试试    地区填写美国
+
+
+
+
+
+
+
 
 
 
