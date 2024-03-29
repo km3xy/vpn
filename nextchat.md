@@ -27,6 +27,13 @@ https://app.nextchat.dev/
 有电脑版
 
 
+https://github.com/ChatGPTNextWeb
+
+
+
+
+
+
 
 
 
