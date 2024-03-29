@@ -1,3 +1,9 @@
+主页
+
+https://nextchat.dev/
+
+主页，网页web端
+
 https://app.nextchat.dev/
 
 添加到桌面 离线模式 没有安卓版 只能 添加到手机桌面
